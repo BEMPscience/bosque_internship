@@ -1,2 +1,12 @@
-# bosque_internship-
-UNM students train as interns with the Bosque Ecosystem Monitoring Program to mentor K-12 students and teachers in Community Science, Education, and Stewardship on the Rio Grande.
+# Bosque Internship
+UNM students train as interns with the Bosque Ecosystem Monitoring Program (BEMP) to mentor K-12 students and teachers in community science, education, and stewardship on the Rio Grande.
+
+BEMP is a collboration between the University of New Mexic Department of Biology, Bosque School, and the Sevilleta LTER. 
+
+# Mission Statement
+Community Science, Education, and Stewardship: Equitable and inclusive hands-on student research
+essential to the management of the Rio Grande ecosystem.
+
+More information on BEMP is available at: http://bemp.org/
+
+
