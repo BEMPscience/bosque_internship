@@ -9,4 +9,6 @@ essential to the management of the Rio Grande ecosystem.
 
 More information on BEMP is available at: http://bemp.org/
 
+![A view of the bosque at ](link-to-image)
+
 
