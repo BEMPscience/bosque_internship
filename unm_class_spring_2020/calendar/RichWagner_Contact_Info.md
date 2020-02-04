@@ -1,3 +1,3 @@
 Lab Hours<br>
-Castetter 1528<br>
+Castetter 1524<br>
 Rwagner1@unm.edu
