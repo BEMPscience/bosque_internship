@@ -6,4 +6,4 @@ The Bosque Ecosystem Monitoring Program’s (BEMP) Crawford Symposium is an annu
 
 We are honored to have Valle de Oro’s Jennifer Owen-White give the keynote address with special presentations by BEMP students. <br>
 
-We need volunteers to assist with various tasks for this event. Helping at the registration table, set up, take down, timekeeping presentations, etc. You will need to RSVP for this event at this link (https://mailchi.mp/91c9192a9c34/bemp-2020-crawford-symposium-invitation). If you have any questions or need additional information please email bemp@bosqueschool.org. <br>
+We need volunteers to assist with various tasks for this event. Helping at the registration table, set up, take down, timekeeping presentations, etc. You will need to RSVP for this event at this link (https://mailchi.mp/91c9192a9c34/bemp-2020-crawford-symposium-invitation). You do not have to stay for the entire event. If you have any questions or need additional information please email bemp@bosqueschool.org. <br>
